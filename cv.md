@@ -13,7 +13,7 @@
 
 ## **Profile**
 
-Here should be info about me
+I worked as a copywriter in advertising and communication agencies for 5 years. Mostly I had to write scripts for commercials. But most of all I liked doing things for people: coming up with new products, activations and impact projects. Today my desire to change the world has transformed into a new goal: now I'm studying Front-End and want to create digital products that make people's lives better. 
 
 **I'm definitely:**
 - a goal-driven person
